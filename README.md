@@ -1,1 +1,6 @@
-# v12-Geli-mi-Seviye-Altyap-
+# Loz 'Bey V12 Temiz Altyapı
+
+Çalınması Serbesttir.
+Hak Mak Yoktur.
+
+Doya Doya Kullanınız...
