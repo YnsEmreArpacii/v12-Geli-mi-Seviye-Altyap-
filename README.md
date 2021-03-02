@@ -1,4 +1,4 @@
-# Loz 'Bey V12 Temiz Altyapı
+# Loz 'Bey V12 Level Altyapı
 
 Çalınması Serbesttir.
 Hak Mak Yoktur.
